@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows script with Shotcut for PC | Shotcut for Windows exclusive Script: 4K-export & title-animation. Featuring 4K-export and
 
 
 
